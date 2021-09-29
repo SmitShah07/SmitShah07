@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **smitshahs007@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OSjl_9h2x5-jPOdLq6KS0RSB4sD_Q1Rk/view?usp=sharing](https://drive.google.com/file/d/1OSjl_9h2x5-jPOdLq6KS0RSB4sD_Q1Rk/view?usp=sharing)
+- 📄 Know about my experiences [link](https://drive.google.com/file/d/1g77drFvZQtPYJb71lqwgNZIfXISl3oqL/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
